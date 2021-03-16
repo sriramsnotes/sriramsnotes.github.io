@@ -6,7 +6,7 @@ Armed with his experience and never stop learning attitude, he has started to wr
 
 ### Sriram's Notes Articles are published here
 
-![Linkedin](/images/linkedin.png)
+![Linkedin](https://github.com/sriramsnotes/sriramsnotes.github.io/blob/main/images/linkedin.png)
 
 
 

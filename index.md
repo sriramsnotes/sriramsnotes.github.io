@@ -10,6 +10,10 @@ Armed with his experience and never stop learning attitude, he has started to wr
 
 ### Listen to Sri Tech Show podcast
 [Anchor.FM](https://anchor.fm/sritechshow)
+
+### Launching Soon Sriram's Notes Youtube Channel
+
+[Youtube](https://www.youtube.com/channel/UCbdy7SG2wbQK1tJoSNAMz7A) 
  
  
 

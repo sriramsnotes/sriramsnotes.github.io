@@ -14,6 +14,14 @@ Armed with his experience and never stop learning attitude, he has started to wr
 ### Launching Soon Sriram's Notes Youtube Channel
 
 [Youtube](https://www.youtube.com/channel/UCbdy7SG2wbQK1tJoSNAMz7A) 
+
+
+Yeah that's about it. 
+Say a 'hi' and post your thoughts on my articles. 
+Happy to start a conversation. 
+
+Sriram Srinivasan
+
  
  
 

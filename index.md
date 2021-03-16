@@ -17,8 +17,8 @@ Armed with his experience and never stop learning attitude, he has started to wr
 
 
 Yeah that's about it. 
-Say a 'hi' and post your thoughts on my articles. 
-Happy to start a conversation. 
+Say 'hi' and post your thoughts on my articles. 
+Happy to be part of a conversation.
 
 Sriram Srinivasan
 
